@@ -32,6 +32,9 @@
 ![Screenshot 2024-10-05 135725](https://github.com/user-attachments/assets/384f82e3-feb2-4874-ad4d-80e1a96dca74)
 ![Screenshot 2024-10-05 135656](https://github.com/user-attachments/assets/d81a2f1c-1fec-4b6f-9b68-f0a70b1988ee)
 
+# Projecr Report
+https://drive.google.com/file/d/1xqlro7plLnnO2XiWgPljHvpHZbAo7mZH/view?usp=drive_link
+
 
 
 
